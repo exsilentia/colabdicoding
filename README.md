@@ -10,3 +10,4 @@ Berikut daftar Volunter yang diterima:
 
 - Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 - Gregorius Michael, [gmichaelll.blogspot.com](https://gmichaelll.blogspot.com).
+- exsilentia, [exsilentia.com](https://exsilentia.com).
